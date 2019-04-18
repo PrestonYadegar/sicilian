@@ -5,5 +5,6 @@ Investment advisor (pending registration in State of California) providing propr
 ### Investor Relations
 
 Email: preston.yadegar@gmail.com
+
 Phone: 650-***-****
 

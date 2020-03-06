@@ -1,10 +1,11 @@
-## Sicilian Investments
+## Sicilian Investment Group
 
-Investment advisor (pending registration in State of California) providing proprietary macroeconomic and options/futures investment products.   
+Registered Investment Advisor (pending registration in State of California).
+Systematic Macro. No BS Statistics. Options, Futures, and Forex Strategies.
 
 ### Investor Relations
 
-Email: preston.yadegar@gmail.com
+Email: preston***@*****.com
 
 Phone: 650-***-****
 
